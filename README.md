@@ -1,2 +1,2 @@
 # Discord-webhook-acbc
-Just a repo for discord webhooks.
+Hey virgins! We're updating this channel. Lmao changing shit n stuff honestly idek how to use this but its cool
